@@ -18,7 +18,7 @@
 | ![CapBangsCat2](https://user-images.githubusercontent.com/1762113/79080155-08773900-7cd9-11ea-8364-6b2fcd1879e8.png)<br> `🥺 Wanted` | ![CapBangsRabbit0](https://user-images.githubusercontent.com/1762113/79080153-08773900-7cd9-11ea-9b51-9770fe9d8ec7.png)<br> `🥺 Wanted` |![ShoesHighcutKatesneaker2](https://user-images.githubusercontent.com/1762113/79080152-07dea280-7cd9-11ea-981c-10eb69f6abb1.png) <br> `🥺 Wanted` | ![ShoesKneeWestern2](https://user-images.githubusercontent.com/1762113/79080151-07dea280-7cd9-11ea-9c34-95b6e06b8a8c.png)<br> `🥺 Wanted` | ![ShoesSandalCrossbelt5](https://user-images.githubusercontent.com/1762113/79080150-07460c00-7cd9-11ea-85f9-f885c69bdd06.png)<br> `🥺 Wanted` | 
  
 
-Want to trade? Reply or DM me on [Twitter dot com](https://twitter.com/sabrina).
+Want to trade? Reply or DM me on [Twitter dot com](https://twitter.com/sabrina/status/1249448724729868294).
 
 
 
